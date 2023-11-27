@@ -8,7 +8,7 @@ Meu Nome é Emilly Mendes
 ![](https://media.tenor.com/hPvQP8v-if8AAAAC/slash-guns-n-roses.gif)
 
 
--araujo.santos.emilly@escol.pr.gov.br
+-araujo.santos.emilly@escola.pr.gov.br
 
 
 🌨️
